@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @ilyashajji  
+- 👀 I’m interested in web development, software engineering, and SAP systems.  
+- 🌱 I’m currently learning advanced networking, cloud computing, and cybersecurity.  
+- 💞️ I’m looking to collaborate on open-source projects and innovative software solutions.  
+- 📫 How to reach me:  
+  - Email: ilyashajji770@gmail.com  
+  - LinkedIn: [Ilyas Hajji](https://linkedin.com/in/ilyashajji)  
+- 😄 Pronouns: He/Him  
+- ⚡ Fun fact: I combine my passion for fitness and technology to stay balanced and productive!  
