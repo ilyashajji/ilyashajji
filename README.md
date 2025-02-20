@@ -5,5 +5,4 @@
 - 📫 How to reach me:  
   - Email: ilyashajji770@gmail.com  
   - LinkedIn: [Ilyas Hajji](https://linkedin.com/in/ilyashajji)  
-- 😄 Pronouns: He/Him  
 - ⚡ Fun fact: I combine my passion for fitness and technology to stay balanced and productive!  
